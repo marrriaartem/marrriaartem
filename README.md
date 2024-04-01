@@ -1,0 +1,13 @@
+- 👋 Hi, I’m @marrriaartem![-5789756463974039324_121](https://github.com/marrriaartem/marrriaartem/assets/165540412/66645606-8fa7-4425-9500-067bd52c3d67)
+
+- 👀 I’m interested in ...
+- 🌱 I’m currently learning ...
+- 💞️ I’m looking to collaborate on ...thanks
+- 📫 How to reach me ...
+- 😄 Pronouns: ...
+- ⚡ Fun fact: ...OK but not m
+
+<!---
+marrriaartem/marrriaartem is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+You can click the Preview link to take a look at your changes.
+--->
